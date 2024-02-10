@@ -11,4 +11,4 @@ KEY HIGHLIGHTS
      
 PDF LINK: https://drive.google.com/file/d/1y7xAwatoSklFSt4NMFovaYHu80czBeDx/view?usp=sharing
 
-EXCEL FILE LINK: https://in.docworkspace.com/d/sIKWd0KwvrPSDrgY
+EXCEL FILE LINK: https://docs.google.com/spreadsheets/d/1nR6YNekXfzanhxtmMbb7iecE948RwrFb/edit?usp=sharing&ouid=117803499658180048532&rtpof=true&sd=true
